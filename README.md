@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently studying BE in Computer Science Engineeringwith a passionate in ecology and a tech-enthusiast.
+I am currently studying BE in Computer Science Engineering with a passionate in ecology and a tech-enthusiast.
 
 
 ## 🌐 Socials:
